@@ -13,13 +13,15 @@
 
 - Ask me about **my love of mixing the creative with the analytical.**
 
-- How to reach me **skyjnoke9@gmail.com**
-
 - Know about my experiences [(resume)]
 
 - Fun fact **I go play BINGO every Saturday night**
 
 <h3 align="left">Connect with me:</h3>
+
+-Email: skyjnoke9@gmail.com <br>
+-Phone: (603) 793-0352 <br>
+-LinkedIn: https://www.linkedin.com/in/skyler-noke <br>
 
 <p align="left">
 </p>
